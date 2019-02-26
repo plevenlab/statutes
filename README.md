@@ -1,2 +1,5 @@
-# statutes
-Statutes of a Non-profit organization (NPO)
+# У С Т А В
+
+## НА СДРУЖЕНИЕ С НЕСТОПАНСКА ЦЕЛ В ОБЩЕСТВЕНА ПОЛЗА "ПЛЕВЕН ЛАБ"
+
+
